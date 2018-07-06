@@ -1,2 +1,0 @@
-# nawwarahtravel
-GitHub Pages
